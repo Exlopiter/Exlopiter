@@ -1,0 +1,4 @@
+- - local decal - - (arceus x) - - (color black)
+- - (infinite yeid) - - (Gigachad hub) - - (keyboard)
+  - -  - (fly) - - - (loading) - - (settings) - - (John doe fe) - -
+       - - (speed) - - (jump) (create script)
